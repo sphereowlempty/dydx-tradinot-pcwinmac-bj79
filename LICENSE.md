@@ -1,4 +1,4 @@
-# 
+# Premium dydx trading bot complementos for Mac OS | VIP dydx trading bot complementos for PC Windows. Featuring comercio de futuros and análisis de momento — optimized for maximum performance.
 
 
 
